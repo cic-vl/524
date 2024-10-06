@@ -6,4 +6,4 @@ KAV 524 kullandığı adresini güncelledi. Eğer üyesiyseniz ve hesabınıza g
 
 Avrupanın en iyi slot sitesi, bu aya özel olarak yeni üye olan kullanıcılara %300 hoşgeldiniz promosyonu veriyor. Kayıt olarak bu fırsattan yararlanabilirsiniz.
 
-[**KAYIT OLMAK VE %300 HOŞGELDİNİZ PROMOSYONU İLE OYNAMAYA BAŞLAMAK İÇİN TIKLAYIN**](http://gx72.2.vu/vd)
+[**KAYIT OLMAK VE %300 HOŞGELDİNİZ PROMOSYONU İLE OYNAMAYA BAŞLAMAK İÇİN TIKLAYIN**](http://gx72.2.vu/kav)
